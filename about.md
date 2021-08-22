@@ -1,0 +1,1 @@
+Jakas informacja o mnie
